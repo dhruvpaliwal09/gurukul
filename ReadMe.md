@@ -17,4 +17,4 @@ INSTRUCTIONS :-
 
 
 
-# Any queries contact me on "dikshant.dak@gmail.com"
+# Any queries contact me on "dhruvpaliwal2002@gmail.com"
